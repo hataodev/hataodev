@@ -3,8 +3,6 @@
 > What I like to do
 
 - Playing Geometry Dash
-- Playing WiiU and I try to study Miiverse btw (It's hard tbh 😢)
-- Create Minecraft cheat with Cheat Engine
 - Chatting in [Pretendo Discord Server](https://invite.gg/pretendo) ⬅
 
 > My exploits
